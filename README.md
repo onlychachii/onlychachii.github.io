@@ -4,5 +4,3 @@
 
 
 **GOOD DAY!**
-
-https://youtu.be/lTRiuFIWV54
