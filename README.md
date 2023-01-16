@@ -1,5 +1,5 @@
 > *9-ARROWSMITH*
-### GOOD MORNING!
+### *GOOD MORNING!* :sunny:
 
 [Start your day with me:)]
 <iframe width="560" height="315" src="https://www.youtube.com/embed/igJoONdopog" title="YouTube video player" frameborder="0" allow="accelerometer; autoplay; clipboard-write; encrypted-media; gyroscope; picture-in-picture; web-share" allowfullscreen></iframe>
@@ -47,7 +47,7 @@
 
 *Research shows that relaxation keeps your heart healthier, cuts stress, reduces muscle tension, improves brain function and memory, and helps you avoid depression, anxiety, and obesity. It boosts your immune system and helps alleviate the symptoms of many medical and psychological disorders. Relaxing is important!*
 
- ### ***ENJOY THE REST OF YOUR DAY!***
+ ### ***ENJOY THE REST OF YOUR DAY!*** :two_hearts:	
 
 ~ "With the new day comes new strength and new thoughts." ~
 
