@@ -40,8 +40,11 @@
 It provides a total brain workout. Research has shown that listening to music can reduce anxiety, blood pressure, and pain as well as improve sleep quality, mood, mental alertness, and memory.
 
 [Here's a playlist :)]
+
 https://open.spotify.com/playlist/0g7DziuOcERfr4tAyXB59Q?si=5d52bf8397c34e8f
 
 5.*Relax*
 
 ![image](https://user-images.githubusercontent.com/122426478/212586027-03b9ebce-5b42-4ea4-9c98-a97ec7faab4d.png)
+
+Research shows that relaxation keeps your heart healthier, cuts stress, reduces muscle tension, improves brain function and memory, and helps you avoid depression, anxiety, and obesity. It boosts your immune system and helps alleviate the symptoms of many medical and psychological disorders. Relaxing is important!
