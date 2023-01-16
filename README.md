@@ -41,7 +41,7 @@
 
 [Here's a playlist :)]
 
-https://open.spotify.com/playlist/0g7DziuOcERfr4tAyXB59Q?si=5d52bf8397c34e8f
+<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/0g7DziuOcERfr4tAyXB59Q?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 
 5.*Relax*
 
