@@ -1,4 +1,3 @@
-  *9-Arrowsmith*
 
 # GOOD MORNING!
 
