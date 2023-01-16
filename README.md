@@ -12,7 +12,7 @@
 
 
 
-**Key Reminders to start your day right:**
+### *Key Reminders to start your day right:*
 
 1.*Wake up* 
 
