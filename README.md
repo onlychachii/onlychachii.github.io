@@ -1,8 +1,7 @@
-                                             # onlychachii.github.io
-                                               *Jasmine Nagrampa*
+ # onlychachii.github.io
+ *Jasmine Nagrampa*
 
-
-                                                *9-Arrowsmith*
+  *9-Arrowsmith*
 
 # GOOD MORNING!
 
