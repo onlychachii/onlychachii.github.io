@@ -47,3 +47,7 @@
 
 *Research shows that relaxation keeps your heart healthier, cuts stress, reduces muscle tension, improves brain function and memory, and helps you avoid depression, anxiety, and obesity. It boosts your immune system and helps alleviate the symptoms of many medical and psychological disorders. Relaxing is important!*
 
+ ### ***ENJOY THE REST OF YOUR DAY!***
+
+~ "With the new day comes new strength and new thoughts." ~
+
