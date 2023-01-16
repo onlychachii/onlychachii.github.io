@@ -1,6 +1,3 @@
-
-*Jasmine Nagrampa*
-
   *9-Arrowsmith*
 
 # GOOD MORNING!
