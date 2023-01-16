@@ -9,7 +9,7 @@
 
 ### *Key Reminders to start your day right:*
 
-1. ***Wake up*** 
+1. ***Wake up early*** 
 
 ![image](https://user-images.githubusercontent.com/122426478/212585724-521323fe-4a41-4a7d-9df9-5c5dbba699c6.png) 
 
